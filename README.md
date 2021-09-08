@@ -53,9 +53,9 @@ Final Thoughts:
 
 Decide to enjoy the exam experience - it is there to show that you can rather than you can't. 
 It's a 3 hour exam but goes by in a flash. 
-No sweets are allowed in the test centre - get 
-No going back to previous questions in the exam 
-
+No sweets are allowed in the test centre - get some breakfast first and a drink of water so you're good for the duration.  
+No going back to previous questions in the exam, select the best answer and move on 
+Watch Thor's video about timings per question.  
 
 Good luck & Best wishes for the exam. 
 -------------------------------------
